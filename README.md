@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Ivan
+- 👀 I’m interested in crypto
+- 💞️ I’m looking to collaborate with crypto projects
